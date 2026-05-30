@@ -26,3 +26,5 @@ Não, não quero ser humano (Não)
 Quero só esse bando de animais lindos com muito tesão (Ooh)
 Não quero namorar, mulher que quer me dar
 Shadow quero ação...
+
+senha:crxss
